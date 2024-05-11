@@ -7,6 +7,8 @@
 # Let me make it clear right away that the unit at the beginning of the address is required. Let's begin.
 **1. Download this > file**
 
+***pass - free***
+
  - Next, you need to take into account that your address CANNOT HAVE these letters (and one number):
 > l - lowercase L
 
